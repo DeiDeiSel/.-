@@ -1,5 +1,5 @@
    Hello, I am Sel. You can call me Deivy too. Pronouns : she;her. 
-      Feel free to interacr6by actions, but not words. Words have a lot of control beholden in it's hands, and I might         even not have an answer. This account is only made for introduction; self expression.  
+      Feel free to interact by actions, but not words. Words have a lot of control beholden in it's hands, and I might         even not have an answer. This account is only made for introduction; self expression.  
 
    Do not lust inside thy heart, thy heart is fragile, and so is thou. Thy heart will melt, and so will thou.
 
