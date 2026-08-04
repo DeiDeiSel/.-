@@ -1,4 +1,12 @@
-# 
+
+             Hello, I am Sel. You can call me Deivy too. Pronouns : she;her. 
+      Feel free to interacr6by actions, but not words. Words have a lot of control beholden in it's hands, and I might               even not have an answer. This account is only made for introduction; self expression. 
 
 
-<img width="768" height="768" alt="Image" src="https://github.com/user-attachments/assets/5884ab7a-0b99-4c31-be51-38e85893cf54" />
+
+
+
+
+
+
+
