@@ -8,7 +8,7 @@
       
    <img width="2048" height="2048" alt="Image" src="https://github.com/user-attachments/assets/7f2e8fcc-a68f-4aff-a78d-454e659be2ef" />
 
-
+And formerly, I used to lust alot, I did repent, but the thing is the guilt is big; and is not to leave. All the damage is done, but I think my temptations are coming back. God please save me from my sins! 
 
 
 
